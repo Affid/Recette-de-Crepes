@@ -6,14 +6,14 @@
 - ![Lait](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQBLw8pHDmM2BH0OlzTNjOQL15dqcQO8n6Ypg&s) 375 ml de lait
 - ![Eau](https://img.freepik.com/free-photo/glass-table_144627-8849.jpg) 375 ml d'eau
 - ![Farine](https://thumbs.dreamstime.com/b/wheat-grain-flour-22804776.jpg) 300g de farine
-- ![Huile d'olive](https://images.app.goo.gl/dop3nvUeeSTjf3UdA) 2 cuillères à soupe d'huile d'olive
+- ![Huile d'olive](https://www.womansworld.com/wp-content/uploads/2021/02/oil.jpg?w=953) 2 cuillères à soupe d'huile d'olive
 
 #### Pour servir:
-- ![Beurre](https://upload.wikimedia.org/wikipedia/commons/6/6f/Beurre_demi-sel.jpg) Du beurre
-- ![Filet de poulet](https://upload.wikimedia.org/wikipedia/commons/f/f7/Chicken_breasts.jpg) Du filet de poulet
-- ![Fromage fondu](https://upload.wikimedia.org/wikipedia/commons/1/1c/Fondue_mit_Schnaps.jpg) Du fromage fondu
-- ![Fruits](https://upload.wikimedia.org/wikipedia/commons/1/15/Red_Apple.jpg) Des fruits
-- ![Miel](https://upload.wikimedia.org/wikipedia/commons/2/23/Honey_%26_Honeycombs.jpg) Du miel
+- ![Beurre](https://t3.ftcdn.net/jpg/02/40/14/70/360_F_240147049_1DKgPqORVBXfHdqh7YZvCgDbQl7LVptM.jpg) Du beurre
+- ![Filet de poulet](https://st2.depositphotos.com/1002351/5478/i/450/depositphotos_54787611-stock-photo-sandwich-with-pork-ham.jpg) Du filet de poulet
+- ![Fromage fondu](https://img.freepik.com/photos-gratuite/gros-plan-recette-du-fromage-fondu_23-2149286845.jpg) Du fromage fondu
+- ![Fruits](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT0TsiIiD_WuoI6jYI88RGcNFwAdjL9YIo8Wg&s) Des fruits
+- ![Miel](https://media.istockphoto.com/id/520733611/photo/jar-of-honey-with-honeycomb.jpg?s=612x612&w=0&k=20&c=k7s6XnJvM1O3kLfy5XUn1M169j11Zcca9rFgvIBGkUE=) Du miel
 
 #### Instructions:
 

@@ -1,4 +1,4 @@
-### Recette de Crêpes (A1 Niveau de Français)
+### Recette de Crêpes
 
 #### Ingrédients:
 - ![Oeufs](https://media.istockphoto.com/id/173234780/photo/group-of-brown-raw-eggs-one-is-broken-isolated-white.jpg?s=612x612&w=0&k=20&c=Ezdfb242lOnxeYPA2nyEX6IKgjDpIfXI-g-in-ShSnE=) Deux oeufs
